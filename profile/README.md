@@ -3,6 +3,12 @@
 Chúng tôi là công ty sản xuất website theo quy trình phần mềm quốc tế, sử dung công nghệ hiện đại và luôn hướng tới người dùng.
 Chúng tôi còn là chuyên gia tư vấn trong lĩnh vực website bán hàng, cung cấp dịch vụ hỗ trợ toàn diện cho doanh nghiệp và tạo ra những sản phẩm độc đáo dành riêng cho khách hàng tại Việt Nam.
 
+**Liên hệ**
+
+- Email: sales@codetot.com
+- Điện thoại: +84 987 196 180
+- Website: https://codetot.vn
+
 ## Tầm nhìn
 
 Code Tốt định hướng trở thành công ty công nghệ phát triển ứng dụng nền tảng web và mobile với chất lượng cao theo tiêu chuẩn quốc tế.
