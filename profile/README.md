@@ -6,7 +6,7 @@ Chúng tôi còn là chuyên gia tư vấn trong lĩnh vực website bán hàng,
 **Liên hệ**
 
 - Email: sales@codetot.com
-- Điện thoại: (+84) 0982-90-40-40
+- Điện thoại: (+84) 0982-90-4343
 - Website: https://codetot.vn, https://codetot.com
 
 ## Tầm nhìn
